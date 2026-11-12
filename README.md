@@ -7,4 +7,4 @@ https://www.roblox.com/games/88951201927122/Gear-Troll-Slap-Tower
 https://www.roblox.com/games/103285721487694/Extreme-Gear-Troll-Tower
 https://www.roblox.com/games/102429912667575/Portal-Gun-Tower
 https://www.roblox.com/games/111131234711386/Gravity-Gun-Tower
-
+https://www.roblox.com/games/88952407055841/Slap-Crazy-Troll-Tower
